@@ -1,16 +1,26 @@
-## Hi there 👋
+<p align="center"> Hello!!!
+  
+[atabook](https://komadeaddd.atabook.org/) ,
+[strawpage](https://komadeaddd.straw.page/) ,
+[bluesky](https://bsky.app/profile/komadeaddd.bsky.social) ,
+[X (twitter)](https://x.com/komadeaddd69) ,
+[telegram](https://t.me/foxhouse_fffrk) !
 
-<!--
-**komadeaddd/komadeaddd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+---
+<p align="center">
+Call me <b>Mud</b>, <b>Bommi</b> or <b>Rina</b> ;
+You can use pronouns any way you want, I won't mind. ;
+<p align="center">
+INFP , 4w3 , 469 ; melancholic ; anxious-avoidant type ; 16.04 ; aromatic.
 
-Here are some ideas to get you started:
+---
+<p align="center">
+<b> Main fandoms : </b>
+  <p align="center">
+Alien Stage ; Given ; Genshin Impact ; Honkai Star Rail ; DemOn ; Airknight ; Omniscient Reader's Viewpoint ; No.6 .
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+<p align="center">
+<b> DNI : </b> 
+<p align="center">
+(all)–philia; homophobia; selfharm; politics; wirth; rudeness; people less than 15 yo (I don't understand how to communicate with them) ; I don't like lukatill / ivanluka / chiscara fans. 
