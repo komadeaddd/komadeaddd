@@ -1,7 +1,8 @@
 <p align="center"> Hello !!!
   
 [atabook](https://komadeaddd.atabook.org/) ,
-[strawpage](https://komadeaddd.straw.page/) ,
+[strawpage](https://komadeaddd.straw.page/) ;
+
 [bluesky](https://bsky.app/profile/komadeaddd.bsky.social) ,
 [X (twitter)](https://x.com/komadeaddd69) ,
 [telegram](https://t.me/foxhouse_fffrk) ,
