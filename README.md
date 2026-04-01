@@ -19,7 +19,7 @@ INFP , 4w3 , 469 ; melancholic ; anxious-avoidant type ; 16.04 ; aromatic.
 <p align="center">
 <b> Main fandoms : </b>
   <p align="center">
-Alien Stage ; Given ; Genshin Impact ; Honkai Star Rail ; DemOn ; Arknight ; Omniscient Reader's Viewpoint ; No.6 .
+Alien Stage ; Given ; Genshin Impact ; Honkai Star Rail ; DemOn ; Arknights ; Omniscient Reader's Viewpoint ; No.6 .
 
 ---
 <p align="center">
