@@ -13,7 +13,7 @@
 Call me <b>Mud</b>, <b>Bommi</b> or <b>Rina</b> ;
 You can use pronouns any way you want, I won't mind ;
 <p align="center">
-INFP , 4w3 , 469 ; melancholic ; anxious-avoidant type ; 16.04 ; aromatic.
+INFP , 4w3 , 469 ; melancholic ; anxious-avoidant type ; 16.04 ; aromatic ; older than 18yo .
 
 ---
 <p align="center">
