@@ -10,7 +10,7 @@
 
 ---
 <p align="center">
-Call me <b>Mud</b>, <b>Bommi</b> or <b>Rina</b> ;
+Call me <b>Mud</b>, <b>Bommy</b> or <b>Rina</b> ;
 You can use pronouns any way you want, I won't mind ;
 <p align="center">
 INFP , 4w3 , 469 ; melancholic ; anxious-avoidant type ; 16.04 ; aromatic ; older than 18yo .
@@ -19,7 +19,7 @@ INFP , 4w3 , 469 ; melancholic ; anxious-avoidant type ; 16.04 ; aromatic ; olde
 <p align="center">
 <b> Main fandoms : </b>
   <p align="center">
-Alien Stage ; Given ; Genshin Impact ; Honkai Star Rail ; DemOn ; Arknights ; Omniscient Reader's Viewpoint ; No.6 .
+Alien Stage ; Given ; Genshin Impact ; Honkai Star Rail ; DemOn ; Arknights (esp AKEF) ; Omniscient Reader's Viewpoint ; No.6 .
 
 ---
 <p align="center">
