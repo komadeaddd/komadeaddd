@@ -5,7 +5,7 @@
 
 [bluesky](https://bsky.app/profile/komadeaddd.bsky.social) ,
 [X (twitter)](https://x.com/komadeaddd69) ,
-[telegram](https://t.me/foxhouse_fffrk) ,
+[telegram](https://t.me/komadeaddd69) ,
 [tumblr](https://www.tumblr.com/blog/komadeaddd) !
 
 ---
