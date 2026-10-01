@@ -1,9 +1,10 @@
-<p align="center"> Hello !!!
-  
-[bluesky](https://bsky.app/profile/komadeaddd.bsky.social) ,
-[X (twitter)](https://x.com/komadeaddd69) ,
-[telegram](https://t.me/komadeaddd69) ,
-[tumblr](https://www.tumblr.com/blog/komadeaddd) !
+<p align="center"> 
+  Hello !!!
+
+  [bluesky](https://bsky.app/profile/komadeaddd.bsky.social) ,
+  [X (twitter)](https://x.com/komadeaddd69) ,
+  [telegram](https://t.me/komadeaddd69) ,
+  [tumblr](https://www.tumblr.com/blog/komadeaddd) !
 
 ---
 <p align="center">
@@ -16,10 +17,10 @@ INFP , 4w3 , 469 ; melancholic ; anxious-avoidant type ; 16.04 ; aromatic ; olde
 <p align="center">
 <b> Main fandoms : </b>
   <p align="center">
- Arknights (esp Arknights Endfield) ; Alien Stage ; Given ; Genshin Impact ; Honkai Star Rail ; DemOn ; Omniscient Reader's Viewpoint ; No.6 .
+ Arknights (esp Arknights Endfield) ; Given ; Genshin Impact ; Honkai Star Rail ; Omniscient Reader's Viewpoint ; Alien Stage ; No.6 .
 
 ---
 <p align="center">
 <b> DNI : </b> 
 <p align="center">
-(all)–philia; homophobia; selfharm; politics; wirth; rudeness; people less than 15 yo (I don't understand how to communicate with them) ; I don't like lukatill / ivanluka / chiscara fans. 
+(all)–philia; homophobia; selfharm; politics; wirth; rudeness; people less than 16 yo (I don't understand how to communicate with them) ; I don't like chiscara or scaramouche fans, sorry . 
